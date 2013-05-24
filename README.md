@@ -4,4 +4,4 @@ GitRnD
 GitRnD
 
 I love BSB songs!
-I have a collection of BSB. Check this out!
+I have a collection of BSB. Check this out guys!
